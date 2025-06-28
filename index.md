@@ -1,5 +1,3 @@
-Here you can say lots of fun things about your site.
+Vítejte na mém blogu!
 
-Maybe say a some things about yourself.
-
-Or maybe what you plan to blog about.
+Jmenuji se Matyáš Jan Kudláček a rozhodl jsem se absolvovat studium v zahraničí na střední škole. Na tomto blogu píši o svých zážitcích a zkušenostech.
